@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **manalikadam051@gmail.com**
 
-- ⚡ Fun fact **Tech Enthusiastic**
+- ⚡ **Tech Enthusiastic**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
